@@ -1,3 +1,3 @@
-# 吕淑伦个人博客 (Lyu Shulun's Personal Page)
+# 吕淑伦博客 (lyushulun blog)
 
 
